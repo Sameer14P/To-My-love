@@ -1,4 +1,4 @@
-# 💍 Will You Marry Me, Suku? 💖
+# 💍 To my Lovely, Suku? 💖
 
 Hey my love,
 
