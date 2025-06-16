@@ -2,15 +2,7 @@
 
 Hey my love,
 
-From the first moment we met, I knew you were someone truly special.  
-Your smile lights up my darkest days, your voice calms every storm inside me,  
-and your love has made my life infinitely better.
-
-I wanted to do something unique — because you're one of a kind.
-
-So here I am, on GitHub, asking you something from the depths of my heart...
-
-### Will you marry me? 👩‍❤️‍👨💐
+From the very first moment we met, I knew deep down that you were my forever. You are my light in the darkest hours, my calm in every storm, my world, my home, my everything. I love you to the moon and back, endlessly and truly. I wish you a beautiful journey ahead—a flourishing career, glowing health, and boundless joy. With all my love, Sameer.
 
 With all my love,  
 **Sameer ❤️**
